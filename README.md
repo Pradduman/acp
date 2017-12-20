@@ -1,6 +1,4 @@
 # acp
 life
 
-love again
-love
-
+its crazy.
